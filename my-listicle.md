@@ -9,7 +9,7 @@ _I'm starting to see a trend here_
 
 - [**The History of Switzerland**](https://en.wikipedia.org/wiki/History_of_Switzerland): It seems like such a random place to be interested in, but the history of how the Swiss Confederation came to be and its existence throughout the [Early Modern Period](https://en.wikipedia.org/wiki/Early_modern_period) is certainly fascinating.
 
-- [**The Polish-Lithuanian Commonwealth**](https://en.wikipedia.org/wiki/Polish–Lithuanian_Commonwealth): A union between the Kingdom of Poland and the massive abd suprisingly powerful [Grand Duchy of Lithuania](https://en.wikipedia.org/wiki/Grand_Duchy_of_Lithuania).
+- [**The Polish-Lithuanian Commonwealth**](https://en.wikipedia.org/wiki/Polish–Lithuanian_Commonwealth): A union between the Kingdom of Poland and the massive and suprisingly powerful [Grand Duchy of Lithuania](https://en.wikipedia.org/wiki/Grand_Duchy_of_Lithuania).
 
 I think you have also begun to notice the trend towards Early Modern Central European History, as I have writing this. This requires further study.
 
